@@ -8,14 +8,13 @@
   Competent in managing projects, translating business requirements into Data Science deliverables.	
   Worked in various industries: education, e-commerce, manufacturing, and consultancy.
   Experienced working in multinational, corporate, mid-size, and start-up companies with various cultures.
-  Published two scientific papers to notable international conferences.
-**
+  Published two scientific papers to notable international conferences.**
 
 
 London, United Kingdom </br>
 +44 7549 134 157 </br>
 stefan.lauren@yahoo.com </br>
-linkedin.com/in/stefan-lauren </br>
+[linkedin.com/in/stefan-lauren](linkedin.com/in/stefan-lauren) </br>
 
 ## Experience
 
